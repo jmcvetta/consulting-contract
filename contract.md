@@ -114,3 +114,25 @@ If any provision of this Agreement is held illegal or unenforceable in a
 judicial proceeding, such provision shall be severed, and the remainder of this
 Agreement shall remain operative and binding on the parties.
 
+
+
+
+
+
+
+
+
+____________________________________________________________
+Client
+
+________________________________________
+Date
+
+
+
+
+____________________________________________________________
+Consultant
+
+________________________________________
+Date
